@@ -1,0 +1,2 @@
+# kms
+windows激活
